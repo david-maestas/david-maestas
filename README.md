@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @david-maestas
-- 📫 How to reach me: dmaestas360 aht gmail
+- 👋 Hi, I’m @david-maestas 
+- 📫 How to reach me: dmaestas360 aht gmail or drm154@pitt.edu
